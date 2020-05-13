@@ -13,6 +13,7 @@
 - Twitter: https://twitter.com/thermes8
 - facebook: https://www.facebook.com/thermes8/
 - Wantedly: https://jp.wantedly.com/users/272773
+- Findy: https://findy-code.io/share_profiles/j_Y56wQ1RcdYg
 - LAPRAS: https://lapras.com/public/7CVATI4
 
 ## 紹介文
